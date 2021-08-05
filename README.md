@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Diluzera
+- 👀 I’m interested in Database, Automation and Design
+- 🌱 I’m currently learning WEB and VBA
+- 📫 Reach me in Discord Diluzera#3934
